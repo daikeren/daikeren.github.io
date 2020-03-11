@@ -1,1 +1,0 @@
-# daikeren.github.io
